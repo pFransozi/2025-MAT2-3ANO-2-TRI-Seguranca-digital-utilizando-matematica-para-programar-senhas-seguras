@@ -1,0 +1,1 @@
+# 2025-MAT2-3ANO-2-TRI-Seguranca-digital-utilizando-matematica-para-programar-senhas-seguras
